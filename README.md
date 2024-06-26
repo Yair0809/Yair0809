@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yair0809
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning cyber
+- 📫 How to reach me yefraim0809@gmail.com
+- 😄 Pronouns: fucking Male
